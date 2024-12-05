@@ -6,7 +6,7 @@ Olá! Sou Milton Massuanganhe, um profissional apaixonado por **Big Data**, **Ci
 Com formação em **Engenharia Eletrônica e de Telecomunicações** pela Escola Superior de Ciências Náuticas, tenho uma sólida base técnica combinada com experiência prática em análise de dados, automação de processos e inteligência de negócios.  
 
 ### 🚀 Meus Objetivos  
-Estou em uma jornada para aprofundar minhas habilidades em **Big Data Analytics** e **Ciência de Dados**, com o objetivo de continuar gerando impacto positivo em organizações através de soluções inovadoras e insights baseados em dados. Tenho interesse em projetos que empoderem pessoas, protejam o planeta e promovam confiança. 
+Estou em uma jornada para aprofundar minhas habilidades em **Big Data Analytics** e **Ciência de Dados**, com o objetivo de continuar gerando impacto positivo em organizações através de soluções inovadoras e insights baseados em dados. Tenho interesse em projetos que empoderem pessoas, protejam o planeta e promovam confiança.E acima de tudo, **Me tornar no Melhor e Mais Influente Cientista de Dados de Moçambique**  
 
 ### 💼 Experiência e Realizações  
 
